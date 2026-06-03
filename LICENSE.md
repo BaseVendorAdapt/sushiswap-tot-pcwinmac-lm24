@@ -1,4 +1,4 @@
-# 
+# محدث sushiswap trading bot إعدادات مسبقة لـ Mac OS | حصرية sushiswap trading bot إعدادات مسبقة لـ PC Windows. مع تبادل الرموز و إشارات الانعكاس — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
